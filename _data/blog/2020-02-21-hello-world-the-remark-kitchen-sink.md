@@ -6,6 +6,6 @@ title: 'เครดิตฟรี 50 ล่าสุด พร้อมโค�
 thumbnail: /assets/image-6.jpg
 ---
 # รวมเว็บเครดิตฟรีพร้อมโค้ดล่าสุด  
-![slotsaiboon](images/logo-slotsaiboon.webp)
+![slotsaiboon](images/logo-slotsaiboon.png.webp)
 slotsaiboon เครดิตฟรี 50 
 https://game.slotsaiboon.com/register?token=Rnrg7RaalJAbtnq4
